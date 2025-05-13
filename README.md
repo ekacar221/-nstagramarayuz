@@ -1,1 +1,1 @@
-# -nstagramarayuz
+# -instagramarayuz
